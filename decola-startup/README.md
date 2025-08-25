@@ -1,2 +1,0 @@
-# decola-startup
-
